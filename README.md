@@ -1,0 +1,1 @@
+Eu estou achando o curso muito interessante! Mas, como estou começando do 0 e são conteúdos completamente novos para mim, gostaria que alguns pontos fossem mais detalhados. Entretanto, entendo que o tempo limitado do treinamento não permita tal coisa. Ainda bem que temos o Slack, que está possibilitando receber bastante ajuda dos colegas. No geral, estou gostando muito.
